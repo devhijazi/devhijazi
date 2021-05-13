@@ -11,7 +11,7 @@ co-founder @hitechline.
 Enthusiast of the best web & mobile development technologies.
 
 
-Currently co-founder of the company @hitechline where I always try to study new languages ​​and technologies to create the best projects on the market.
+Currently co-founder of the company @hitechline where I always try to study new languages ​​and technologies to create the best projects in the market.
 
 
 I discovered the world of programming languages ​​before college studying at home, and since then I have been passionate about developing systems and anything that involves code.
